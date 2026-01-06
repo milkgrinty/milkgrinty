@@ -6,7 +6,7 @@
 
 ╰► меня зовут гринти/мюсли, люблю рисовать, слушать музыку, смотреть сериалы/мульты/шоу/фильмы и т.п., играть в различные игрульки (roblox, hoyo games, vrchat, minecraft, cookie run, stardew valley, valve games и т.д.)
 
-╰► я очень мультифандомная личность, но мои основные (на данный момент) гиперфиксы: countryhumans, stranger things, my little pony, deltarune.
+╰► я очень мультифандомная личность, но мои основные (на данный момент) гиперфиксы: countryhumans, stranger things, my little pony, deltarune, dsaf/dialtown.
 
 ╰► чаще всего сижу на safe russian #1, нахожусь в зонах: кх, майнкрафт, осд, андертейл/дельтарун, фнаф.
 
